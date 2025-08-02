@@ -1,6 +1,6 @@
 # 🎯 Deadlock | 2025 Undetected 
 
-Outplay your enemies in Valve's **Deadlock** with the most advanced cheat suite of 2025. From surgical aimbot to full visual control — this tool redefines competitive dominance.
+Outplay your enemies in Valve's **Deadlock** with the most advanced of 2025. From surgical aimbot to full visual control — this tool redefines competitive dominance.
 
 [![image.png](https://i.postimg.cc/WzDGd8Ys/image.png)](https://postimg.cc/Fk4dqyQ6)
 
